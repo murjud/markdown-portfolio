@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+things I don't like
+* sick people
+* kai
